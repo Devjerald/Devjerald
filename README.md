@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...building apps
 - 🌱 I’m currently learning ...new and improved skills
 - 💞️ I’m looking to collaborate on ...coding
-- 📫 How to reach me ...iturn633@gmail.com
+- 📫 How to reach me ...iturn633@gmail.com or call via +254799312011
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...astronauts grow taller in space
 
